@@ -1,0 +1,1 @@
+# HCI-Shopping-Gadgets
